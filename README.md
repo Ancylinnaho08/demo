@@ -10,3 +10,4 @@ Myself, my mom and my brother we stay in coimbatore , my father he lives in abro
 My mom she is an awesome speaker,in which i get inspired by her talks and it motivates me.
 My brother he is an guitarist and pretty much intrested in music.
 He creates songs on his own also develops diffrent sorts of music.
+I dont have any specific rolemodel, but am kinda inspired by the story writer Rick Riordan because of his writing and thinking skills of how a book should be intresting.
